@@ -1,6 +1,3 @@
-# Mozart-Symphony-No.-41-Jupiter-
+# 아마데우스 볼프강 모짜르트 교향곡 41번 "주피터"
 
-Hello, This is *Western Music History 4* in Hanyang University. 
-
-And now, I will desiered for one composer and one composition.
-
+모차르트의 주피터 교향곡(Symphony No. 41 in C major, K. 551)은 그의 마지막 교향곡이자, 가장 웅장하고 위대한 작품 중 하나로 꼽힙니다. "주피터"라는 이름은 모차르트가 직접 붙인 것이 아니라, 후기 비평가들이 이 곡의 장엄하고 신적인 분위기 때문에 붙인 것입니다. 고대 로마 신화에서 주피터(Jupiter)는 신들의 왕으로, 이 교향곡의 웅장함과 맞아떨어지는 이름이라고 할 수 있습니다.
